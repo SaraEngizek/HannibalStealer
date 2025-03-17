@@ -21,3 +21,4 @@ What is collecting?
 — Screenshot
 — Files from the victim's PC
 — Crypto clipper
+Telegram:@saraengizek
